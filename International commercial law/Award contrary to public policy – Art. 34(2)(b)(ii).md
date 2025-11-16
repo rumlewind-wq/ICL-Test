@@ -1,0 +1,2 @@
+- **[[Award contrary to public policy – Art. 34(2)(b)(ii)]]**  
+    A ground for annulment under the lex arbitri (Model Law). Covers violations of fundamental fairness, corruption, fraud, or basic procedural integrity.
